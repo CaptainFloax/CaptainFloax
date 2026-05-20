@@ -1,8 +1,8 @@
 # Loïc Vanderschooten
 **COO @ Lonestone · Nantes, France**
 
-> Ingénieur logiciel avec un parcours fondateur.  
-> Aujourd'hui COO chez **Lonestone**, studio design & tech basé à Nantes.
+> Entrepreneur, Ingénieur, Formateur.  
+> Aujourd'hui COO chez **Lonestone**, studio Product tech & IA basé à Nantes.
 
 ---
 
